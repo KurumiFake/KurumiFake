@@ -9,7 +9,7 @@ my Facebook account: n.tuanthien.crazy
 my Reddit account: kurumifeikk (i dont use it that much tbh)
 forgor my twitter acc but theres one
 my osu! account: KurumiFake (why am i American bruh)
-my premium Minecraft account: i done have one, yes, wish i had money ;-; the username KurumiFake got regged by another dude iirc
+my premium Minecraft account: i dont have one, yes, wish i had money ;-; the username KurumiFake got regged by another dude iirc
 mostly play Minecraft and osu!, sth plays other games idk, no i dont play Among Us
 currly wanna learn Java
 
