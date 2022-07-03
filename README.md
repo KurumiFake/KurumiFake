@@ -4,7 +4,7 @@ my name: Nguyễn Tuấn Thiện
 am Vietnamese
 birthday: 23/9/2007 (yes at the time of writing im only 14y old)
 often known online as KurumiFake
-my Discord account: KurumiFake#7005, wont change; no alts yet (as of now),
+my Discord account: KurumiFake#7005, wont change; HakunoFake#5206 (alt)
 my main Facebook account: n.tuanthien.crazy
 my Reddit account: KurumiFeikk (i dont use it that much tbh)
 my Twitter account: KurumiFake
