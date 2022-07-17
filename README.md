@@ -4,7 +4,7 @@ my name: Nguyễn Tuấn Thiện
 am Vietnamese
 birthday: 23/9/2007 (yes at the time of writing im only 14y old)
 often known online as KurumiFake
-my Discord account: KurumiFake#7005, wont change; HakunoFake#5206 (alt)
+my Discord account: KurumiFake#7005, wont change; HakunoFake#5206 /* alt */
 my main Facebook account: n.tuanthien.crazy
 my Reddit account: KurumiFeikk (i dont use it that much tbh)
 my Twitter account: KurumiFake
@@ -14,8 +14,11 @@ games i play:
 - Minecraft, both Java Edition and ~~bugrock~~ Bedrock Edition
 - osu!
  + osu!droid, opsu! (mostly droid)
-- Phigros, Lanota, Arcaea
+- Phigros
+- Lanota
+- Arcaea
 - NOISZ ST∆RLIVHT (no its not a typo; yes ive alr played 2ECONDS TO STARLIVHT+)
+- Colorful Stage, "Project Sekai" /* whatever they call it idk lol */
 sth plays other games idk, no i dont play Among Us
 currly wanna learn Java
 
