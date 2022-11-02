@@ -18,7 +18,8 @@ games i play:
 - Lanota
 - Arcaea
 - NOISZ ST∆RLIVHT (no its not a typo; yes ive alr played 2ECONDS TO STARLIVHT+)
-- Colorful Stage, "Project Sekai" /* whatever they call it idk lol */
+- Project Sekai /* eng */
+- Rotaeno /* yes i bought it */
 sth plays other games idk, no i dont play Among Us
 currly wanna learn Java
 
